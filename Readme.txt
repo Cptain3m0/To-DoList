@@ -30,4 +30,4 @@
   Combinar simplicidad y estética en un proyecto pequeño 
   pero impactante.
 
-¡Echa un vistazo y dime qué opinas! 🚀
+by Felix Luis Felipe
